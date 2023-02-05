@@ -1,6 +1,6 @@
 # CrackingFullCourse
 This is the only course you need to learn cracking. DM to buy zip password.
-
+TELEGRAM: https://t.me/cronos9902
 
 Dear Hackie,
 
@@ -17,4 +17,4 @@ Don’t miss out on this opportunity to take your skills to the next level. Sign
 
 Best regards,
 
-@travis9902
+Telegram:@travis9902
