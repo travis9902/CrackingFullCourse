@@ -11,8 +11,11 @@ We offer a comprehensive program that covers everything from the basics to the l
 With our course, you’ll have access to:
 
 In-depth lessons and hands-on experience
+
 Access to the latest tools and techniques
+
 Access to a community of other premium-cracking enthusiasts
+
 Don’t miss out on this opportunity to take your skills to the next level. Sign up for our premium-cracking course today!
 
 Best regards,
